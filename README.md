@@ -1,3 +1,4 @@
+![IMG_0163](https://github.com/Adjeee3/Adjeee3/assets/154843888/36f453c0-bc32-4464-9c6c-e13421d5623a)
 - 👋 Hi, I’m @Adjeee3
 - 👀 I’m interested in learning to hack
 - 🌱 I’m currently learning ...
